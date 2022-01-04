@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @jwb7111
-- 💞️ I’m looking to collaborate on placing engineer roles for growing crypto companies
 - 📫 How to reach me jacobwellsbrown@gmail.com
 
 <!---
